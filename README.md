@@ -5,4 +5,7 @@
 - 📫 How to reach me: nalrashd@student.42abudhabi.ae .
 - ⚡ Fun fact I have a Bachelor's degree in Accounting while currently on my way to get my diploma in software engneering.
 
-![download-1](https://user-images.githubusercontent.com/101207512/198255553-7fff6bb4-f8ce-40b0-a453-327c442eed68.png)
+<img width="179" alt="Screen Shot 2022-10-27 at 2 25 44 PM" src="https://user-images.githubusercontent.com/101207512/198260759-c950c0ab-302a-4eb7-af0a-a5a6688bed48.png">
+
+![1_qdAW1TjCN57h1lbuuzvchg](https://user-images.githubusercontent.com/101207512/198260137-b5d5c6d2-3de5-4777-99be-9b0fee65f4f6.gif)
+
